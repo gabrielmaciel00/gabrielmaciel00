@@ -1,4 +1,4 @@
-### Olá! Me chamo Gabriel Maciel 👋
+### Olá! 👋
   
   ##
  
